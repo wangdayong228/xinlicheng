@@ -354,6 +354,9 @@
 ![39塑性健身.jpeg](./pic/4/39塑性健身.jpeg)
 
 - [减肥励志视频.mp4](./pic/4/40减肥励志视频.mp4)
+<video id="video" controls="" preload="none" >
+      <source id="mp4" src="./pic/4/40减肥励志视频.mp4" type="video/mp4">
+      </video>
 
 - [减肥视频抖音号.jpeg](./pic/4/41减肥视频抖音号.jpeg)
 ![41减肥视频抖音号.jpeg](./pic/4/41减肥视频抖音号.jpeg)
