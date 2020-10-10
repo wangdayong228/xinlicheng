@@ -67,7 +67,7 @@
 ## 四、性格饼图与行为的关系
 ![09性格饼图与行为的关系.jpeg](./pic/1/09性格饼图与行为的关系.jpeg)
 
-[小刺猬视频.mp4](./pic/1/10小刺猬视频.mp4)
+[小刺猬视频.mp4](https://github.com/wangdayong228/xinlicheng/blob/master/pic/1/10%E5%B0%8F%E5%88%BA%E7%8C%AC%E8%A7%86%E9%A2%91.mp4)
 
 ## 五、关于性格的金句
 ![11关于性格的金句.jpeg](./pic/1/11关于性格的金句.jpeg)
@@ -105,7 +105,7 @@
 ![视频_感恩要及时_子欲养而亲不在.jpeg](./pic/2/1green/07视频_感恩要及时_子欲养而亲不在.jpeg)
 
 ### 如何激活黄色性格
-[绿色性格激活黄色性格示范_50离地俯卧撑_30单手俯卧撑.mp4](./pic/2/1green/08绿色性格激活黄色性格示范_50离地俯卧撑_30单手俯卧撑.mp4)
+[绿色性格激活黄色性格示范_50离地俯卧撑_30单手俯卧撑.mp4](https://github.com/wangdayong228/xinlicheng/blob/master/pic/2/1green/08%E7%BB%BF%E8%89%B2%E6%80%A7%E6%A0%BC%E6%BF%80%E6%B4%BB%E9%BB%84%E8%89%B2%E6%80%A7%E6%A0%BC%E7%A4%BA%E8%8C%83_50%E7%A6%BB%E5%9C%B0%E4%BF%AF%E5%8D%A7%E6%92%91_30%E5%8D%95%E6%89%8B%E4%BF%AF%E5%8D%A7%E6%92%91.mp4)
 
 ### 课后作业
 ![09课后作业.jpeg](./pic/2/1green/09课后作业.jpeg)
@@ -133,9 +133,9 @@
 ### 红色优势
 ![10红色优势.jpeg](./pic/2/3red/10红色优势.jpeg)
 
-[红色宝宝示范.mp4](./pic/2/3red/11红色宝宝示范.mp4)
+[红色宝宝示范.mp4](https://github.com/wangdayong228/xinlicheng/blob/master/pic/2/3red/11%E7%BA%A2%E8%89%B2%E5%AE%9D%E5%AE%9D%E7%A4%BA%E8%8C%83.mp4)
 
-[调动红色的歌曲_海阔天空.mp4](./pic/2/3red/12调动红色的歌曲_海阔天空.mp4)
+[调动红色的歌曲_海阔天空.mp4](https://github.com/wangdayong228/xinlicheng/blob/master/pic/2/3red/12%E8%B0%83%E5%8A%A8%E7%BA%A2%E8%89%B2%E7%9A%84%E6%AD%8C%E6%9B%B2_%E6%B5%B7%E9%98%94%E5%A4%A9%E7%A9%BA.mp4)
 
 ### 红色性格的辨别方法
 ![13红色性格的辨别方法.jpeg](./pic/2/3red/13红色性格的辨别方法.jpeg)
@@ -590,7 +590,7 @@ IP化
 ![39塑性健身.jpeg](./pic/4/39塑性健身.jpeg)
 
 减肥励志视频
-[40减肥励志视频.mp4](./pic/4/40减肥励志视频.mp4)
+[40减肥励志视频.mp4](https://github.com/wangdayong228/xinlicheng/blob/master/pic/4/40%E5%87%8F%E8%82%A5%E5%8A%B1%E5%BF%97%E8%A7%86%E9%A2%91.mp4)
 
 减肥视频抖音号
 ![41减肥视频抖音号.jpeg](./pic/4/41减肥视频抖音号.jpeg)
@@ -602,22 +602,22 @@ IP化
 ![43瘦身饮食方式.jpeg](./pic/4/43瘦身饮食方式.jpeg)
 
 挑战21天练出完美身材_抖音号a1021339105
-[44挑战21天练出完美身材_抖音号a1021339105.mp4](./pic/4/44挑战21天练出完美身材_抖音号a1021339105.mp4)
+[44挑战21天练出完美身材_抖音号a1021339105.mp4](https://github.com/wangdayong228/xinlicheng/blob/master/pic/4/44%E6%8C%91%E6%88%9821%E5%A4%A9%E7%BB%83%E5%87%BA%E5%AE%8C%E7%BE%8E%E8%BA%AB%E6%9D%90_%E6%8A%96%E9%9F%B3%E5%8F%B7a1021339105.mp4)
 
 ##### 3. 目标承诺
 ![45目标承诺.jpeg](./pic/4/45目标承诺.jpeg)
 
 零基础暴汗减脂视频
-[46零基础暴汗减脂视频.mp4](./pic/4/46零基础暴汗减脂视频.mp4) 
+[46零基础暴汗减脂视频.mp4](https://github.com/wangdayong228/xinlicheng/blob/master/pic/4/46%E9%9B%B6%E5%9F%BA%E7%A1%80%E6%9A%B4%E6%B1%97%E5%87%8F%E8%84%82%E8%A7%86%E9%A2%91.mp4) 
 
 男生集体订立目标
 ![47男生集体订立目标.jpeg](./pic/4/47男生集体订立目标.jpeg)
 
 男生集体订立目标视频
-[48男生集体订立目标视频.mp4](./pic/4/48男生集体订立目标视频.mp4)
+[48男生集体订立目标视频.mp4](https://github.com/wangdayong228/xinlicheng/blob/master/pic/4/48%E7%94%B7%E7%94%9F%E9%9B%86%E4%BD%93%E8%AE%A2%E7%AB%8B%E7%9B%AE%E6%A0%87%E8%A7%86%E9%A2%91.mp4)
 
 女生集体订立目标视频
-[49女生集体订立目标视频.mp4](./pic/4/49女生集体订立目标视频.mp4)
+[49女生集体订立目标视频.mp4](https://github.com/wangdayong228/xinlicheng/blob/master/pic/4/49%E5%A5%B3%E7%94%9F%E9%9B%86%E4%BD%93%E8%AE%A2%E7%AB%8B%E7%9B%AE%E6%A0%87%E8%A7%86%E9%A2%91.mp4)
 
 
 ## 性格色彩缺陷调整推荐
